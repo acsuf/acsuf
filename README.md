@@ -1,1 +1,1 @@
-i am alive. have been for longer than i can even remember.
+Daniel Erickson, Ph.D in mathematics.
